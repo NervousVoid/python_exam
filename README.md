@@ -1,0 +1,5 @@
+![image](https://github.com/turukmankto/KIS_Python_Hometasks/assets/114865000/578edfcc-312f-46cf-9db2-f6509ad658e1)
+![image](https://github.com/turukmankto/KIS_Python_Hometasks/assets/114865000/a39709e6-f8ce-444c-975d-35d3ecc009b7)
+![image](https://github.com/turukmankto/KIS_Python_Hometasks/assets/114865000/f7bb67db-b6a9-4b41-a224-e5b47f74e0da)
+![image](https://github.com/turukmankto/KIS_Python_Hometasks/assets/114865000/413200a0-f881-4bc3-b29a-04c94bb73f4d)
+![image](https://github.com/turukmankto/KIS_Python_Hometasks/assets/114865000/a614f194-4219-4ca6-93ea-3b06514554d3)
